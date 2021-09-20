@@ -23,3 +23,8 @@
 Belarusian State University of Economics.
 Specialty accounting analysis and audit
 * * *
+***Work Experience:***
+No work experience.
+* * *
+***Languages:***
+English level A2
